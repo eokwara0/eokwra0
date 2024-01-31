@@ -1,2 +1,2 @@
 # eokwra0
-Get to know aboutme
+Get to know about me
